@@ -1,1 +1,0 @@
-# Slicing-UI-Mobile-Programming-5C
